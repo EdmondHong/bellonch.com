@@ -71,4 +71,4 @@ Without further ado, please take the time (almost twenty minutes!) to listen to 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/yozCWyDEw-M" frameborder="0" allowfullscreen class="youtube"></iframe>
 
-*The seventh song, a fifty-year-old psychedelic from one of the best albums in history, will be out... song enough!*
+*The seventh song, a fifty-year-old psychedelic from one of the best albums in history, is just [a click away](/a-house-is-not-a-motel-by-love).*
